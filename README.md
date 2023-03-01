@@ -1,0 +1,1 @@
+# RP2022-23_Rysava-Natalie_Vyuziti-Stable-Diffusion-pro-vytvareni-ilustracni-grafiky
